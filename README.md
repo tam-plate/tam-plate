@@ -1,4 +1,4 @@
-## Hi there 👋
+![Spotify](https://spotify-github-readme.vercel.app/api/spotify)](https://open.spotify.com/collection/tracks)
 
 <!--
 **tam-plate/tam-plate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
