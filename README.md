@@ -12,4 +12,3 @@
 
 ₊˚ ☆ ━━━━⊱⋆⊰━━━━ ☆ ₊˚
 
-![static-assets-upload2291721569459342509](https://github.com/user-attachments/assets/d2b8ab55-56dc-4285-81bc-87e53ca621b2)
