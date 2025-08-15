@@ -7,8 +7,10 @@
 <img width="375" height="50" alt="tumblr_05c6257bfb94d408892755a884d734d1_2fe46c7b_400" src="https://github.com/user-attachments/assets/3495ba65-d494-49e7-829e-3908e871392a" />
 
 
-𝘩𝘦𝘭𝘭𝘰! 𝘔𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝘢𝘯𝘯, 𝘪 𝘳𝘦𝘢𝘭𝘭𝘺 𝘭𝘪𝘬𝘦 𝘥𝘳𝘢𝘸𝘪𝘯𝘨 𝘢𝘯𝘥 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴! 𝘨𝘳𝘪𝘦𝘧𝘦𝘳 𝘪𝘴 𝘮𝘺 𝘧/𝘰 , 𝘢𝘯𝘥 𝘪𝘮 𝘢𝘭𝘴𝘰 𝘢 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱𝘱𝘦𝘳.
+[tumblr_e2ceb0f81d5dd89c9907300bafb4f775_c4484cd4_250](https://github.com/user-attachments/assets/72db6d15-59ab-49b0-895a-f21cdef18c15)
 
 
-<img width="375" height="50" alt="tumblr_05c6257bfb94d408892755a884d734d1_2fe46c7b_400" src="https://github.com/user-attachments/assets/3495ba65-d494-49e7-829e-3908e871392a" />
+
+
+<img width="375" height="50" alt="tumblr_05c6257bfb94d408892755a884d734d1_2fe46c7b_400" src="https://github.com/user-attachments/assets/3495ba65-d494-49e7-829e-3908e871392a" /> 
 
