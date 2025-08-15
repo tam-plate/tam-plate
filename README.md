@@ -4,8 +4,7 @@
 
 ˚₊ ☆ ━━━━⊱⋆⊰━━━━ ☆ ₊˚
 
-![<img width="618" height="618" alt="Untitled56_20250814113958 (1)" src="https://github.com/user-attachments/assets/2ae9435e-de36-402b-b2b6-fedb624125a2" />
-]({BadgeURLHere})
+![image]({BadgeURLHere})
 
 ˚ ₊ ☆ ━━━━⊱⋆⊰━━━━ ☆ ₊˚
 
