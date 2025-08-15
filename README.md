@@ -6,10 +6,5 @@
 ![31843abe](https://github.com/user-attachments/assets/0ea95af6-a31f-4197-afc2-6df0cfde6181)
 
 
-![2813ec31](https://github.com/user-attachments/assets/f79e316a-fe40-4ed6-88fe-0664b7bb30b7)
 
-
-![31843abe](https://github.com/user-attachments/assets/0ea95af6-a31f-4197-afc2-6df0cfde6181)
-
-
-       
+![c621ace1](https://github.com/user-attachments/assets/22c09469-96cf-4698-9a7d-07274b25085f)
