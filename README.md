@@ -6,6 +6,6 @@
 
 <img width="375" height="50" alt="tumblr_05c6257bfb94d408892755a884d734d1_2fe46c7b_400" src="https://github.com/user-attachments/assets/3495ba65-d494-49e7-829e-3908e871392a" />
 
-https://tamtrummm.atabook.org/ , https://yuricatgirl.straw.page/ ,https://en.pronouns.page/@ann_annie
+https://tamtrummm.atabook.org/ , 
 
 
